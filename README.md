@@ -32,7 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The order and solemnitie of the creation of the High and mightie Prince Henrie, eldest sonne to our 
+
 **Types of content**
 
   * There are 160 **verse** lines!
